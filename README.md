@@ -1,2 +1,5 @@
 # KonE3
-for fun
+bak wave 
+
+# WAVE
+E3 mak mak
